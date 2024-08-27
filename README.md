@@ -1,5 +1,5 @@
 # BEM VINDOS AO MEU PERFIL 🥀🥀
-▫ MEU NOME É ARTHUR ZAMPEDRI
+▫ MEU NOME  É ARTHUR ZAMPEDRI
 
 ▫ ESTOU ESTUDANDO NA [ALURA](https://www.alura.com.br/)
 
